@@ -1,0 +1,1 @@
+# easymoney2020.github.io
